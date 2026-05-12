@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with hypershot professional Scripts, the #1 Script. Includes fly and no cooldown for unbeatable performance.
 
 
 
